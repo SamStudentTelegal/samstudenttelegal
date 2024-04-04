@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 🌌
 **Did you know that Nebulae are the cosmic nurseries?** <br />
 *Nebulae are vast, cosmic clouds of gas and dust. They serve as stellar nurseries, where new stars and planets are born.*
 *These breathtaking formations consist of various elements like hydrogen, helium, and ionized gases* <br />
